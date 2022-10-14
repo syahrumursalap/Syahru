@@ -1,0 +1,2 @@
+# Syahru
+I m trader
